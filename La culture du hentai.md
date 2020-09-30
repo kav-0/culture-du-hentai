@@ -1,6 +1,7 @@
 # La culture du hentai
 
 ## Table des matières
+  - Signification du mot hentai
   - L'origine du mot hentai  
   - Les oeuvres majeures  
     - Mentions exemplaires  
