@@ -104,3 +104,9 @@ Et voici les tags les plus recherchés :
   
 Par ailleurs, d'après les statistiques fournies par PornHub, en 2017 le mot hentai figurait en 2ème place parmis les catégories les plus recherchées. D'après Google trends, le mot hentai est recherché environ 100x par jour.  
 [nhentai](https://nhentai.net/) est un des sites les plus connu et utilisé et connu.
+  
+## Source  
+  
+Pena-Pimentel, M. (2010). Baroque Features in Japanese Hentai. International Journal of Comic Art (12) 2. 469-486.  
+Ortega-Brena, M. (2009). Peek-a-boo, I See You: Watching Japanese Hard-core Animation. Sexuality & Culture 13. 17-31.  
+[McLelland, M. (2006). A Short History of ‘Hentai’ Gender & Sexuality in Asia & the Pacific.](http://intersections.anu.edu.au/issue12/mclelland.html)
