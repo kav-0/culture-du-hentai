@@ -22,12 +22,7 @@
 Hentai (変態?, ˈhɛntaɪ̯) est un mot japonais qui signifie « transformation », « métamorphose », « perversion ». Ce mot a une connotation nettement négative à l'étranger et peut être utilisé pour insulter certaines personnes en raison de leurs préférences sexuelles. Hentai est aussi un terme raccourci car il vient de "Hentai Seiyoku" , une expression qui signifie  " Désir sexuel anormal ".  
 Cependant, en région Occidentale Hentai est considéré comme un mot japonais qui veut dire "porno manga" (ou eromanga).  
 Voici une définition de [L'internaute](https://www.linternaute.fr/dictionnaire/fr/definition/hentai/)  
-> Le terme hentai décrit une catégorie de manga japonais, dans lequel les dessins et les dialogues sont explicites, à caractère sexuel, sans équivoque, décrivant des situations érotiques ou pornographiques.        
-
-  
-    
-      
-        
+> Le terme hentai décrit une catégorie de manga japonais, dans lequel les dessins et les dialogues sont explicites, à caractère sexuel, sans équivoque, décrivant des situations érotiques ou pornographiques.           
           
 ## L'origine du mot hentai  
   
@@ -40,6 +35,7 @@ Dans les oeuvres majeures il y a les animés précurseurs comme Lolita Anime: Yu
 Dans le domaine des mangas La Blue Girl est une des références des années 90 mettant en scène une jeune fille ninja qui utilisent des techniques sexuelles pour combattre des démons spécialisés dans les sévices sexuels.  
 Ceci dit, il y en a aussi pour les fan de jeux vidéo ! En 2006, Rapelay tente une percée aux Etats-Unis, mais ce jeu dans lequel vous incarnez un violeur qui doit violer une étudiante et sa famille, sera très rapidement interdit.  
 ### Mentions exemplaires  
+Nous pouvons citer `Bible Black`
 - Bible Black  
 - Discipline  
 - Shin Angel  
