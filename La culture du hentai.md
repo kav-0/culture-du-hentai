@@ -63,3 +63,44 @@ Ceci dit, il y en a aussi pour les fan de jeux vidéo ! En 2006, Rapelay tente u
 - Koiito Kinenbi'
 - Euphoria'
 - youshou'
+  
+## Quelques catégories  
+  
+Comme la pornographie, le hentai est un univers qui comporte de très nombreuses catégories. Cependant, ces dernières sont parfois un peu plus trash que celle que vous pouvez voir sur Pornhub ou YouPorn. Les adeptes des fortes poitrines se tourneront vers le bakunyu. Le lolicon est une tendance très répandue qui met en scène des jeunes filles préadolescentes, voire plus jeunes. Et pour retrouver de jeunes hommes, il y le shotacon.  
+Commençons les choses sérieuses avec l'omorashi, un fétichisme qui se porte sur l'urine et qui va de la culotte légèrement humide aux séances d'urophilie en pleine rue (le yagaï).  
+Le futanari se concentre, pour sa part, sur les hermaphrodites et les transexuels. Evoquons au passage le viol et l'inceste qui font partie intégrante du hentai avant de se tourner vers la passion pour les tentacules. Cette dernière remonte aux début des années 1800 avec des shungas (gravure érotique) représentant des femmes ayant des rapports sexuels avec des monstres marins dotés de tentacules. Ces tentacules érotiques se retrouvent dans le Japon contemporain à travers des mangas comme Demon Beast Invasion et même des films américains avec l'exemple de La Galaxie de la terreur et son ver géant qui déshabille une astronaute avec ses tentacules avant de la violer. Toutefois, la réalité rattrape parfois la fiction, et des scènes pornographiques avec des poulpes ou des anguilles sont disponibles sur le Web.  
+  
+## Le plus gros fournisseur de hentai  
+  
+L'un des plus gros fournisseurs de contenu hentai est le dojinshi. Il s'agit du nom donné au travail des amateurs dans n'importe quel domaine, y compris celui du hentai. Et ils sont nombreux à se lancer dans ce mouvement, du groupe d'étudiants curieux aux futurs dessinateurs de manga en passant par les réalisateurs du dimanche. Et le moins que l'on puisse dire, c'est que les dojinshi rencontrent un immense succès comme l'atteste les rassemblements comme le Comic Fest, véritable paradis de la pornographie japonaise où des milliers de fans viennent acheter les derniers ouvrages des dojinshi les plus trashs.  
+  
+## Pourquoi est-ce toléré au Japon
+  
+Si cela ne choque que nous, et pas (ou presque) les Japonais, c'est car la culture japonaise est très tolérante en termes de représentations sexuelles tant que le côté fictif de l'acte est clairement identifiable. Ainsi, la mise en scène d'un viol ou l'extrême jeunesse d'une partenaire sexuelle sont acceptés tant qu'il n'est pas explicitement mentionné que la jeune fille est mineure ou que le viol est mis en scène dans une version jeu sexuel clairement identifiable.  
+Etrangement, la censure a également été à l'origine de certaines dérives du hentai. Jusqu'aux années 1990, la loi en termes de représentation d'actes sexuels est très floue et la principale interdiction concerne une trop grande ressemblance avec la réalité. Du coup, on comprend plus facilement l'apparition de poitrines complètement démesurées, des sexes immenses et parfois colorés; la dérive vers les tentacules devient ainsi plus logique. La représentation d'une scène de viol ou d'inceste évite donc la censure en modifiant la réalité. C'est ainsi que les bases du hentai se sont fondées.  
+  
+## Similitude avec l'art Baroque  
+  
+Le hentai présente de nombreuses similitudes avec l'art baroque. L'art baroque a souvent représenté des moments d'extase, comme l'extase de Sainte Thérèse. Sainte Thérèse a eu différentes visions. Elle a décrit ces visions en termes souvent sexuels. Le Bernin montre la scène d'un ange sur le point de transpercer la sainte avec une flèche. Hmmm. Une métaphore peut-être ? Cela explique l'aspect du visage de la sculpture, n'est-ce pas ?  
+Attention! Il est important de noter que comme tout type de pornographie, il y a aussi des catégories plus calmes et douce, tel que "wholesome", "true love", etc!  
+  
+## Quelques statistiques
+  
+Bien que cela puisse étonner certains, il y a un nombre énorme et grandissant de personne qui regardent du hentai. Voici la liste des pays qui en lisent le plus:  
+  
+1 : Estonia  
+2 : Ireland  
+3 : Slovenia  
+4 : USA  
+5 : Denmark  
+  
+Et voici les tags les plus recherchés :  
+  
+1 : Uncensored (non censuré)  
+2 : Paizuri (aka 'mammary intercourse')  
+3 : Vanilla  
+4 : Tentacles  
+5 : Netorare (aka 'cuckolding') (tromper)  
+  
+Par ailleurs, d'après les statistiques fournies par PornHub, en 2017 le mot hentai figurait en 2ème place parmis les catégories les plus recherchées. D'après Google trends, le mot hentai est recherché environ 100x par jour.  
+[nhentai](https://nhentai.net/) est un des sites les plus connu et utilisé et connu.
