@@ -66,9 +66,22 @@ Ceci dit, il y en a aussi pour les fan de jeux vidéo ! En 2006, Rapelay tente u
   
 ## Quelques catégories  
   
-Comme la pornographie, le hentai est un univers qui comporte de très nombreuses catégories. Cependant, ces dernières sont parfois un peu plus trash que celle que vous pouvez voir sur Pornhub ou YouPorn. Les adeptes des fortes poitrines se tourneront vers le bakunyu. Le lolicon est une tendance très répandue qui met en scène des jeunes filles préadolescentes, voire plus jeunes. Et pour retrouver de jeunes hommes, il y le shotacon.  
-Commençons les choses sérieuses avec l'omorashi, un fétichisme qui se porte sur l'urine et qui va de la culotte légèrement humide aux séances d'urophilie en pleine rue (le yagaï).  
-Le futanari se concentre, pour sa part, sur les hermaphrodites et les transexuels. Evoquons au passage le viol et l'inceste qui font partie intégrante du hentai avant de se tourner vers la passion pour les tentacules. Cette dernière remonte aux début des années 1800 avec des shungas (gravure érotique) représentant des femmes ayant des rapports sexuels avec des monstres marins dotés de tentacules. Ces tentacules érotiques se retrouvent dans le Japon contemporain à travers des mangas comme Demon Beast Invasion et même des films américains avec l'exemple de La Galaxie de la terreur et son ver géant qui déshabille une astronaute avec ses tentacules avant de la violer. Toutefois, la réalité rattrape parfois la fiction, et des scènes pornographiques avec des poulpes ou des anguilles sont disponibles sur le Web.  
+Comme la pornographie, le hentai est un univers qui comporte de très nombreuses catégories. Cependant, ces dernières sont parfois un peu plus trash que celle que vous pouvez voir sur Pornhub ou YouPorn.  
+  
+#### Fortes poitrines 
+Les adeptes des fortes poitrines se tourneront vers le **bakunyu**.  
+#### Jeune fille  
+Le lolicon est une tendance très répandue qui met en scène des jeunes filles préadolescentes, voire plus jeunes.  
+#### Jeune garçon  
+Et pour retrouver de jeunes hommes, il y le shotacon.  
+### Commençons les choses sérieuses   
+#### Urophilie  
+L'omorashi, un fétichisme qui se porte sur l'urine et qui va de la culotte légèrement humide aux séances d'urophilie en pleine rue (le yagaï).    
+#### Transexuels et hermaphrodite  
+Le futanari se concentre, pour sa part, sur les hermaphrodites et les transexuels.  
+#### Viol et inceste  
+Evoquons au passage le viol et l'inceste qui font partie intégrante du hentai avant de se tourner vers la passion pour les tentacules. Cette dernière remonte aux début des années 1800 avec des shungas (gravure érotique) représentant des femmes ayant des rapports sexuels avec des monstres marins dotés de tentacules.  
+Ces tentacules érotiques se retrouvent dans le Japon contemporain à travers des mangas comme Demon Beast Invasion et même des films américains avec l'exemple de La Galaxie de la terreur et son ver géant qui déshabille une astronaute avec ses tentacules avant de la violer. Toutefois, la réalité rattrape parfois la fiction, et des scènes pornographiques avec des poulpes ou des anguilles sont disponibles sur le Web.  
   
 ## Le plus gros fournisseur de hentai  
   
