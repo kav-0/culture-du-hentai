@@ -1,4 +1,4 @@
-# La culture du hentai  | The culture of hentai
+#   The culture of hentai | La culture du hentai
   
 **Les informations et le contenu de cette oeuvre sont libres de droits, il est cependant demandé de ne pas honteusement voler l'entièreté de celle-ci.  
 The information and the contents of this work are free of rights, it is however asked not to shamefully steal the whole of it.**
@@ -117,12 +117,13 @@ To access the sources, please click [here](https://github.com/kav-0/culture-du-h
   
   
 Thank you for reading :)  
-  
-  
-  
-  
-  
-  
+
+
+
+
+
+
+
 
 ## Table des matières
   - Signification du mot hentai
