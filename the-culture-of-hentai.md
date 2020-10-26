@@ -1,6 +1,129 @@
-# La culture du hentai  
+# La culture du hentai  | The culture of hentai
   
-Les informations et le contenu de cette oeuvre sont libres de droits, il est cependant demandé de ne pas honteusement voler l'entièreté de celle-ci.  
+**Les informations et le contenu de cette oeuvre sont libres de droits, il est cependant demandé de ne pas honteusement voler l'entièreté de celle-ci.  
+The information and the contents of this work are free of rights, it is however asked not to shamefully steal the whole of it.**
+
+Pour aller sur la partie française, [cliquez ici]()
+  
+  
+  
+  
+  
+## Table of Contents
+  - Meaning of the word hentai
+  - The origin of the word hentai  
+  - The major works  
+    - Exemplary Mentions  
+  - Some categories  
+  - Largest provider of hentai content  
+  - Why is it tolerated in Japan  
+  - Similarity with Baroque art  
+  - Some statistics   
+  - Sources
+  
+  
+  
+
+## Meaning of the word hentai
+
+Hentai (変態?, ˈhɛntaɪ̯) is a Japanese word meaning "transformation", "metamorphosis", "perversion". This word has a distinctly negative connotation abroad and can be used to insult certain people because of their sexual preferences. Hentai is also a shortened term because it comes from "Hentai Seiyoku", an expression meaning "abnormal sexual desire".  
+However, in the Western region Hentai is considered a Japanese word meaning "manga porn" (or eromanga).  
+Here is a definition of [L'internaute](https://www.linternaute.fr/dictionnaire/fr/definition/hentai/)  
+> The term hentai describes a category of Japanese manga, in which the drawings and dialogues are explicit, sexual, unequivocal, describing erotic or pornographic situations.           
+          
+## The origin of the word hentai  
+  
+The term Hentai has a lot of baggage behind it. In the Meiji era (1868 - 1912) the term hentai was used in psychology to define disorders such as hysteria. The word was used almost exclusively in the field of science and scholarship. It was associated with an unusual dimension; in the early 1920s it was associated with sexuality and more specifically with deviant sexuality. A lot of newspapers started talking about it. This era is nicknamed the "hentai boom". During the censorship in the 30's, a lot of publications were stopped. But from the 1950s on, it started again.
+
+## The major works  
+  
+In the major works there are the precursor anime like Lolita Anime: Yuki no kurenai keshō ~ shōjo bara kei ~ (first hentai anime, also of the lolicon type, made in 1984.) and Cream Lemon (first hentai anime (1984) with a real story.), both made in 1984. There is also Urotsukidōji, a manga dating from 1986 which will be adapted into an anime later on.   
+  
+In the field of manga The Blue Girl is one of the references of the 90s featuring a young ninja girl who uses sexual techniques to fight demons specialized in sexual abuse.  
+That said, there is also one for video game fans! In 2006, Rapelay tries to make a breakthrough in the United States, but this game in which you play a rapist who has to rape a student and her family, will be banned very quickly.  
+### Exemplary mentions  
+Please note that not all the best known hentai are displayed. There is a multitude of them and it would be too long to list them all. This is a non-exhaustive list.  
+
+- Black Bible  
+- Discipline  
+- Shin Angel  
+- Koihime  
+- Aishimai  
+- Tsuma tsuma  
+- Hot Juicy Teacher  
+- Temptation  
+- Taboo Charming Mother  
+- Debts of Desire  
+- Nakite Domination  
+- The 8 o'clock Girl  
+- Lingerie Office
+- Sexfriend
+- Maple Colors
+- Akiba girl
+- Cleavage
+- Oni Chichi
+- Imouto Paradise!
+- 15 Bishoujo Hyouryuuki
+- Koiito Kinenbi
+- Euphoria'.
+- youshou'.
+  
+## Some categories  
+  
+Like pornography, hentai is a universe with many categories. However, these are sometimes a little more trashy than the one you can see on Pornhub or YouPorn.  
+  
+- Large breasts 
+The followers of strong breasts will turn to the **bakunyu**.  
+- Young girl  
+Lolicon is a widespread trend that involves pre-adolescent and even younger girls.  
+- Young boy  
+And to find young men, there is the shotacon.  
+### Let's start the "serious stuff"   
+- Urophilia  
+Omorashi, a fetish that is based on urine and ranges from slightly wet panties to urophilia sessions in the street (the yagai).    
+- Transexuals and hermaphrodites  
+The futanari focuses, for its part, on hermaphrodites and transsexuals.  
+- Rape and incest  
+Let us evoke in passing the rape and incest which are an integral part of the hentai before turning to the passion for tentacles. The latter dates back to the early 1800s with shungas (erotic engraving) representing women having sex with sea monsters with tentacles.  
+These erotic tentacles are found in contemporary Japan through manga like Demon Beast Invasion and even American movies with the example of The Terror Galaxy and its giant worm that undresses an astronaut with its tentacles before raping her. However, reality sometimes catches up with fiction, and pornographic scenes with octopuses or eels are available on the Web.  
+
+## The largest hentai supplier  
+  
+One of the largest providers of hentai content is dojinshi. It is the name given to the work of hobbyists in any field, including hentai. And there are many who are getting involved in this movement, from curious student groups to future manga artists to Sunday filmmakers. And the least we can say is that the dojinshi are a huge success, as evidenced by gatherings such as Comic Fest, a true paradise of Japanese pornography where thousands of fans come to buy the latest works of the most trashy dojinshi.  
+  
+## Why is it tolerated in Japan
+  
+If this only shocks us, and not (almost) the Japanese, it is because Japanese culture is very tolerant in terms of sexual representations as long as the fictional side of the act is clearly identifiable. Thus, the staging of a rape or the extreme youth of a sexual partner is accepted as long as it is not explicitly mentioned that the girl is a minor or that the rape is staged in a clearly identifiable sex game version.  
+Strangely enough, censorship has also been at the origin of some of the excesses of hentai. Until the 1990s, the law in terms of the representation of sexual acts was very vague and the main prohibition concerned too much resemblance to reality. As a result, it is easier to understand the appearance of completely disproportionate breasts, immense and sometimes colored sexes; the drift towards the tentacles thus becomes more logical. The representation of a scene of rape or incest thus avoids censorship by modifying reality. This is how the bases of hentai were founded.  
+  
+## Similarity with Baroque art  
+  
+Hentai has many similarities with Baroque art. Baroque art often depicted moments of ecstasy, such as the ecstasy of St. Teresa. St. Teresa had different visions. She described these visions often in sexual terms. Bernini shows the scene of an angel about to pierce the saint with an arrow. Hmmm. A metaphor perhaps? That explains the appearance of the sculpture's face, doesn't it?  
+Watch out! It's important to note that like any type of pornography, there are also calmer and softer categories, such as "wholesome", "true love", etc!  
+  
+## Some statistics
+  
+Although it may surprise some people, there are a huge and growing number of people watching hentai. Surprisingly enough, the top three are not countries with an extremely high population. In first position we have Estonia. Then follow Ireland and Slovenia. The USA is still in fourth position and in fifth position we have Denmark.
+  
+Among the most searched tags are the uncensored and the paizuri (Spanish handjob). There is the "basic" sex in 3rd position. More surprisingly these three are followed by tentacles and netorare (deception).  
+  
+Furthermore, according to the statistics provided by PornHub, in 2017 the word hentai was in 2nd place among the most searched categories. According to Google trends, the word hentai is searched about 100x per day.  
+[nhentai](https://nhentai.net/) is one of the most used and known sites.
+  
+    
+  
+  
+  
+   
+   
+   
+   
+   
+   
+  
+  
+  
+
 
 
 ## Table des matières
