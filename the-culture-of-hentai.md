@@ -25,7 +25,8 @@ Pour aller sur la partie française, [cliquez ici](https://github.com/kav-0/cult
 <br>
 <br>
 <br>
-<br>
+<br>  
+
 ## Meaning of the word hentai
 
 Hentai (変態?, ˈhɛntaɪ̯) is a Japanese word meaning "transformation", "metamorphosis", "perversion". This word has a distinctly negative connotation abroad and can be used to insult certain people because of their sexual preferences. Hentai is also a shortened term because it comes from "Hentai Seiyoku", an expression meaning "abnormal sexual desire".  
@@ -146,7 +147,8 @@ Thank you for reading :)
 <br>
 <br>
 <br>
-<br>
+<br>  
+
 ## Signification du mot hentai
 
 Hentai (変態?, ˈhɛntaɪ̯) est un mot japonais qui signifie « transformation », « métamorphose », « perversion ». Ce mot a une connotation nettement négative à l'étranger et peut être utilisé pour insulter certaines personnes en raison de leurs préférences sexuelles. Hentai est aussi un terme raccourci car il vient de "Hentai Seiyoku", une expression qui signifie  " Désir sexuel anormal ".  
