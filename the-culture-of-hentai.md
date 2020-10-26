@@ -3,12 +3,13 @@
 **The information and the contents of this work are free of rights, it is however asked not to shamefully steal the whole of it.
 Les informations et le contenu de cette oeuvre sont libres de droits, il est cependant demandé de ne pas honteusement voler l'entièreté de celle-ci.**  
 
-Pour aller sur la partie française, [cliquez ici](https://github.com/kav-0/culture-du-hentai/blob/master/the-culture-of-hentai.md#table-des-mati%C3%A8res)
-  
-  
-  
-  
-  
+Pour aller sur la partie française, [cliquez ici](https://github.com/kav-0/culture-du-hentai/blob/master/the-culture-of-hentai.md#table-des-mati%C3%A8res)  
+<br>
+<br>
+<br>
+<br>
+<br>
+
 ## Table of Contents
   - Meaning of the word hentai
   - The origin of the word hentai  
@@ -20,10 +21,11 @@ Pour aller sur la partie française, [cliquez ici](https://github.com/kav-0/cult
   - Similarity with Baroque art  
   - Some statistics   
   - Sources
-  
-  
-  
-
+<br>
+<br>
+<br>
+<br>
+<br>
 ## Meaning of the word hentai
 
 Hentai (変態?, ˈhɛntaɪ̯) is a Japanese word meaning "transformation", "metamorphosis", "perversion". This word has a distinctly negative connotation abroad and can be used to insult certain people because of their sexual preferences. Hentai is also a shortened term because it comes from "Hentai Seiyoku", an expression meaning "abnormal sexual desire".  
@@ -109,22 +111,25 @@ Among the most searched tags are the uncensored and the paizuri (Spanish handjob
   
 Furthermore, according to the statistics provided by PornHub, in 2017 the word hentai was in 2nd place among the most searched categories. According to Google trends, the word hentai is searched about 100x per day.  
 [nhentai](https://nhentai.net/) is one of the most used and known sites.
-  
-  
+<br>
+<br>
+<br>
 ## Sources  
 To access the sources, please click [here](https://github.com/kav-0/culture-du-hentai/blob/master/the-culture-of-hentai.md#source)  
-  
-  
-  
+<br>
+<br>
+<br>
+<br>
 Thank you for reading :)  
-
-
-
-
-
-
-
-
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 ## Table des matières
   - Signification du mot hentai
   - L'origine du mot hentai  
@@ -136,12 +141,12 @@ Thank you for reading :)
   - Similitude avec l'art Baroque  
   - Quelques statistiques   
   - Sources
-  
-  
-  
-  
-  
-
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 ## Signification du mot hentai
 
 Hentai (変態?, ˈhɛntaɪ̯) est un mot japonais qui signifie « transformation », « métamorphose », « perversion ». Ce mot a une connotation nettement négative à l'étranger et peut être utilisé pour insulter certaines personnes en raison de leurs préférences sexuelles. Hentai est aussi un terme raccourci car il vient de "Hentai Seiyoku", une expression qui signifie  " Désir sexuel anormal ".  
@@ -227,7 +232,9 @@ Parmis les tags le plus recherchés, il y a le non censuré et le paizuri (branl
   
 Par ailleurs, d'après les statistiques fournies par PornHub, en 2017 le mot hentai figurait en 2ème place parmis les catégories les plus recherchées. D'après Google trends, le mot hentai est recherché environ 100x par jour.  
 [nhentai](https://nhentai.net/) est un des sites les plus connu et utilisé et connu.
-  
+<br>
+<br>
+<br>
 ## Source  
   
 Pena-Pimentel, M. (2010). Baroque Features in Japanese Hentai. International Journal of Comic Art (12) 2. 469-486.  
