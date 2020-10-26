@@ -3,7 +3,7 @@
 **Les informations et le contenu de cette oeuvre sont libres de droits, il est cependant demandé de ne pas honteusement voler l'entièreté de celle-ci.  
 The information and the contents of this work are free of rights, it is however asked not to shamefully steal the whole of it.**
 
-Pour aller sur la partie française, [cliquez ici]()
+Pour aller sur la partie française, [cliquez ici](https://github.com/kav-0/culture-du-hentai/blob/master/the-culture-of-hentai.md#table-des-mati%C3%A8res)
   
   
   
@@ -110,21 +110,19 @@ Among the most searched tags are the uncensored and the paizuri (Spanish handjob
 Furthermore, according to the statistics provided by PornHub, in 2017 the word hentai was in 2nd place among the most searched categories. According to Google trends, the word hentai is searched about 100x per day.  
 [nhentai](https://nhentai.net/) is one of the most used and known sites.
   
-    
+  
+## Sources  
+To access the sources, please click [here](https://github.com/kav-0/culture-du-hentai/blob/master/the-culture-of-hentai.md#source)  
   
   
   
-   
-   
-   
-   
-   
-   
+Thank you for reading :)  
   
   
   
-
-
+  
+  
+  
 
 ## Table des matières
   - Signification du mot hentai
