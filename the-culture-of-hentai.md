@@ -1,7 +1,7 @@
 #   The culture of hentai | La culture du hentai
   
-**Les informations et le contenu de cette oeuvre sont libres de droits, il est cependant demandé de ne pas honteusement voler l'entièreté de celle-ci.  
-The information and the contents of this work are free of rights, it is however asked not to shamefully steal the whole of it.**
+**The information and the contents of this work are free of rights, it is however asked not to shamefully steal the whole of it.
+Les informations et le contenu de cette oeuvre sont libres de droits, il est cependant demandé de ne pas honteusement voler l'entièreté de celle-ci.**  
 
 Pour aller sur la partie française, [cliquez ici](https://github.com/kav-0/culture-du-hentai/blob/master/the-culture-of-hentai.md#table-des-mati%C3%A8res)
   
