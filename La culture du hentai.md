@@ -1,4 +1,7 @@
-# La culture du hentai
+# La culture du hentai  
+  
+Les informations et le contenu de cette oeuvre sont libres de droits, il est cependant demandé de ne pas honteusement voler l'entièreté de celle-ci.  
+
 
 ## Table des matières
   - Signification du mot hentai
@@ -19,7 +22,7 @@
 
 ## Signification du mot hentai
 
-Hentai (変態?, ˈhɛntaɪ̯) est un mot japonais qui signifie « transformation », « métamorphose », « perversion ». Ce mot a une connotation nettement négative à l'étranger et peut être utilisé pour insulter certaines personnes en raison de leurs préférences sexuelles. Hentai est aussi un terme raccourci car il vient de "Hentai Seiyoku" , une expression qui signifie  " Désir sexuel anormal ".  
+Hentai (変態?, ˈhɛntaɪ̯) est un mot japonais qui signifie « transformation », « métamorphose », « perversion ». Ce mot a une connotation nettement négative à l'étranger et peut être utilisé pour insulter certaines personnes en raison de leurs préférences sexuelles. Hentai est aussi un terme raccourci car il vient de "Hentai Seiyoku", une expression qui signifie  " Désir sexuel anormal ".  
 Cependant, en région Occidentale Hentai est considéré comme un mot japonais qui veut dire "porno manga" (ou eromanga).  
 Voici une définition de [L'internaute](https://www.linternaute.fr/dictionnaire/fr/definition/hentai/)  
 > Le terme hentai décrit une catégorie de manga japonais, dans lequel les dessins et les dialogues sont explicites, à caractère sexuel, sans équivoque, décrivant des situations érotiques ou pornographiques.           
@@ -35,7 +38,8 @@ Dans les oeuvres majeures il y a les animés précurseurs comme Lolita Anime: Yu
 Dans le domaine des mangas La Blue Girl est une des références des années 90 mettant en scène une jeune fille ninja qui utilisent des techniques sexuelles pour combattre des démons spécialisés dans les sévices sexuels.  
 Ceci dit, il y en a aussi pour les fan de jeux vidéo ! En 2006, Rapelay tente une percée aux Etats-Unis, mais ce jeu dans lequel vous incarnez un violeur qui doit violer une étudiante et sa famille, sera très rapidement interdit.  
 ### Mentions exemplaires  
-Nous pouvons citer `Bible Black`
+Il est à noter que tout les hentai les plus connus ne sont pas affichés. Il en existe une multitude et il serait trop long de tous les listés. Il s'agit d'une liste non-exhaustive  
+
 - Bible Black  
 - Discipline  
 - Shin Angel  
@@ -64,18 +68,18 @@ Nous pouvons citer `Bible Black`
   
 Comme la pornographie, le hentai est un univers qui comporte de très nombreuses catégories. Cependant, ces dernières sont parfois un peu plus trash que celle que vous pouvez voir sur Pornhub ou YouPorn.  
   
-#### Fortes poitrines 
+- Fortes poitrines 
 Les adeptes des fortes poitrines se tourneront vers le **bakunyu**.  
-#### Jeune fille  
+- Jeune fille  
 Le lolicon est une tendance très répandue qui met en scène des jeunes filles préadolescentes, voire plus jeunes.  
-#### Jeune garçon  
+- Jeune garçon  
 Et pour retrouver de jeunes hommes, il y le shotacon.  
-### Commençons les choses sérieuses   
-#### Urophilie  
+### Commençons les choses "sérieuses"   
+- Urophilie  
 L'omorashi, un fétichisme qui se porte sur l'urine et qui va de la culotte légèrement humide aux séances d'urophilie en pleine rue (le yagaï).    
-#### Transexuels et hermaphrodite  
+- Transexuels et hermaphrodite  
 Le futanari se concentre, pour sa part, sur les hermaphrodites et les transexuels.  
-#### Viol et inceste  
+- Viol et inceste  
 Evoquons au passage le viol et l'inceste qui font partie intégrante du hentai avant de se tourner vers la passion pour les tentacules. Cette dernière remonte aux début des années 1800 avec des shungas (gravure érotique) représentant des femmes ayant des rapports sexuels avec des monstres marins dotés de tentacules.  
 Ces tentacules érotiques se retrouvent dans le Japon contemporain à travers des mangas comme Demon Beast Invasion et même des films américains avec l'exemple de La Galaxie de la terreur et son ver géant qui déshabille une astronaute avec ses tentacules avant de la violer. Toutefois, la réalité rattrape parfois la fiction, et des scènes pornographiques avec des poulpes ou des anguilles sont disponibles sur le Web.  
   
@@ -95,21 +99,9 @@ Attention! Il est important de noter que comme tout type de pornographie, il y a
   
 ## Quelques statistiques
   
-Bien que cela puisse étonner certains, il y a un nombre énorme et grandissant de personne qui regardent du hentai. Voici la liste des pays qui en lisent le plus:  
+Bien que cela puisse étonner certains, il y a un nombre énorme et grandissant de personne qui regardent du hentai. Assez étonnament, les trois premiers du classement ne sont pas des pays avec une population extrêmement élevée. En première position nous avons l'Estonie. Suivent alors l'Irelande et la Slovénie. Les USA sont tout de même en quatrième position et en 5ème nous avons le Denmark.
   
-1 : Estonia  
-2 : Ireland  
-3 : Slovenia  
-4 : USA  
-5 : Denmark  
-  
-Et voici les tags les plus recherchés :  
-  
-1 : Uncensored (non censuré)  
-2 : Paizuri (aka 'mammary intercourse')  
-3 : Vanilla  
-4 : Tentacles  
-5 : Netorare (aka 'cuckolding') (tromper)  
+Parmis les tags le plus recherchés, il y a le non censuré et le paizuri (branlette espagnole). Il y a le sexe "basique" en 3ème position. Plus étonnement ces trois là sont suivis par les tentacules et la netorare (tromperie)  
   
 Par ailleurs, d'après les statistiques fournies par PornHub, en 2017 le mot hentai figurait en 2ème place parmis les catégories les plus recherchées. D'après Google trends, le mot hentai est recherché environ 100x par jour.  
 [nhentai](https://nhentai.net/) est un des sites les plus connu et utilisé et connu.
